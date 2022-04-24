@@ -1,2 +1,0 @@
-fuck java
-fuck you
